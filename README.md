@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-### MY name is Sia Kim 
+### My name is Sia Kim 
 
 
 
